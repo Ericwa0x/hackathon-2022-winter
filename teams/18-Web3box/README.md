@@ -86,7 +86,7 @@ Eric
 - LeEco & CreditEase Senior Technical Manager
 - Responsible for or participate in multiple blockchain projects
 - Senior Blockchain Expert
-- Full-time in blockchain since 2018
+- Full-time in blockchain since 2017
 
 Lei
 
